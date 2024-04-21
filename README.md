@@ -1,0 +1,4 @@
+- 👋 Hi, I'm @kallaho
+- 👀 I am interested in the world of coding.
+- 📫 How to reach me my username is kallaho
+- 😄 Pronouns: Biocs
